@@ -72,23 +72,23 @@
 
 ## 相关阅读
 
-- [相关笔记](https://github.com/uo8lrun64a/mommy-baby-notes/blob/main/20260910xnzp/wyxskpqfjy.md)
-- [相关笔记](https://github.com/sa1ec5y0bz/baby-care-journal/blob/main/20260910mqdw/vgzlvxripe.md)
-- [相关笔记](https://github.com/sa1ec5y0bz/family-health-notes/blob/main/20260910wvoa/yqwqxhgosg.md)
-- [相关笔记](https://github.com/sa1ec5y0bz/baby-care-journal/blob/main/20260910mqdw/nfpaehzait.md)
-- [相关笔记](https://github.com/sa1ec5y0bz/parenting-daily-tips/blob/main/20260910emah/ymziiybshw.md)
-- [相关笔记](https://github.com/uo8lrun64a/child-care-essays/blob/main/20260910hvpe/wcmcpmfrua.md)
-- [相关笔记](https://github.com/sa1ec5y0bz/pregnancy-care-hub/blob/main/20260910xfbk/quwjjzpvlh.md)
+- [美国第三代试管婴儿全攻略：一步步手把手帮你实现海外孕育梦](https://github.com/uo8lrun64a/mommy-baby-notes/blob/main/20260910xnzp/wyxskpqfjy.md)
+- [美国第三代试管婴儿全流程攻略：签证、选院、费用与成功率一步到位](https://github.com/sa1ec5y0bz/baby-care-journal/blob/main/20260910mqdw/vgzlvxripe.md)
+- [美国第三代试管婴儿全攻略：5步搞定赴美生娃无忧](https://github.com/sa1ec5y0bz/family-health-notes/blob/main/20260910wvoa/yqwqxhgosg.md)
+- [赴美第三代试管婴儿避坑指南：5个关键环节千万别踩雷](https://github.com/sa1ec5y0bz/baby-care-journal/blob/main/20260910mqdw/nfpaehzait.md)
+- [去美国做第三代试管婴儿5步全攻略教你实现高成功率](https://github.com/sa1ec5y0bz/parenting-daily-tips/blob/main/20260910emah/ymziiybshw.md)
+- [美国第三代试管婴儿5步搞定：流程、费用与成功率全解析](https://github.com/uo8lrun64a/child-care-essays/blob/main/20260910hvpe/wcmcpmfrua.md)
+- [5步搞定美国第三代试管婴儿：海内外家庭必看全流程攻略](https://github.com/sa1ec5y0bz/pregnancy-care-hub/blob/main/20260910xfbk/quwjjzpvlh.md)
 
 ## 推荐站点
 
-- [查看详情](https://www.danqiushen.com/41.html)
-- [推荐阅读](https://www.danqiushen.com/85.html)
-- [点击查看](https://www.danqiushen.com/36.html)
-- [点击查看](https://www.danqiushen.com/125.html)
-- [详情点击](https://www.wuzhenzhi.cn/148.html)
-- [延伸阅读](https://www.wuzhenzhi.cn/39.html)
-- [点击查看](https://www.wuzhenzhi.cn/56.html)
-- [更多内容](https://www.wuzhenzhi.cn/115.html)
+- [第三代试管包生儿子有影响吗？解析PGT技术与性别选择真相](https://www.wuzhenzhi.cn/112.html)
+- [临沂能做三代试管吗？最新消息与申请条件全面解读](https://www.wuzhenzhi.cn/113.html)
+- [囊胚性别鉴定要多久出结果？PGT检测流程与时间周期全解析](https://www.wuzhenzhi.cn/114.html)
+- [三代试管龙凤胎好吗？PGT技术能实现龙凤胎吗一文说清](https://www.wuzhenzhi.cn/116.html)
+- [4BC囊胚好还是八细胞一级冻胚好？冻胚与囊胚移植对比解析](https://www.wuzhenzhi.cn/117.html)
+- [移植囊胚方案有哪些项目可以做？囊胚移植替代方案类型全解析](https://www.wuzhenzhi.cn/118.html)
+- [新疆佳音医院收费大全：试管婴儿费用明细与流程解读](https://www.wuzhenzhi.cn/119.html)
+- [北京哪个医院能做供卵试管——悟知试管知识网专业科普](https://www.wuzhenzhi.cn/12.html)
 
 *本文整理自母婴健康资讯，仅供科普参考。*
