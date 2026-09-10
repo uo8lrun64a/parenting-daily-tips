@@ -161,20 +161,20 @@ PGT-A 价格在美国本土差异巨大：3 500–7 000 美元/次。便宜往�
 
 ## 相关阅读
 
-- [相关笔记](https://github.com/uo8lrun64a/pregnancy-care-hub/blob/main/20260910ilvq/wrhrhctgni.md)
-- [相关笔记](https://github.com/uo8lrun64a/mommy-baby-notes/blob/main/20260910xnzp/yleotszepz.md)
-- [相关笔记](https://github.com/uo8lrun64a/baby-care-journal/blob/main/20260910eavp/iwxomcdoav.md)
-- [相关笔记](https://github.com/sa1ec5y0bz/mommy-baby-notes/blob/main/20260910wyda/cslnyftbem.md)
-- [相关笔记](https://github.com/sa1ec5y0bz/mommy-baby-notes/blob/main/20260910wyda/jfosrfcrps.md)
-- [相关笔记](https://github.com/sa1ec5y0bz/parenting-daily-tips/blob/main/20260910emah/trcnfvxvcp.md)
+- [美国第三代试管婴儿避坑指南：成功率、费用与流程全解析](https://github.com/uo8lrun64a/pregnancy-care-hub/blob/main/20260910ilvq/wrhrhctgni.md)
+- [揭秘美国第三代试管婴儿：成功率背后的6大核心优势](https://github.com/uo8lrun64a/mommy-baby-notes/blob/main/20260910xnzp/yleotszepz.md)
+- [揭秘美国第三代试管婴儿：高龄夫妻实现生育梦想的5大核心秘诀](https://github.com/uo8lrun64a/baby-care-journal/blob/main/20260910eavp/iwxomcdoav.md)
+- [美国第三代试管婴儿内幕揭秘：你必须避开的6大坑](https://github.com/sa1ec5y0bz/mommy-baby-notes/blob/main/20260910wyda/cslnyftbem.md)
+- [去美国做第三代试管前，你必须知道的7件事：避坑提效全攻略](https://github.com/sa1ec5y0bz/mommy-baby-notes/blob/main/20260910wyda/jfosrfcrps.md)
+- [美国第三代试管婴儿全攻略：5大秘诀+3大避坑秘籍](https://github.com/sa1ec5y0bz/parenting-daily-tips/blob/main/20260910emah/trcnfvxvcp.md)
 
 ## 推荐站点
 
-- [查看详情](https://www.danqiushen.com/128.html)
-- [延伸阅读](https://www.danqiushen.com/zhuyun/)
-- [查看详情](https://www.danqiushen.com/99.html)
-- [延伸阅读](https://www.wuzhenzhi.cn/50.html)
-- [延伸阅读](https://www.wuzhenzhi.cn/79.html)
-- [更多内容](https://www.wuzhenzhi.cn/120.html)
+- [移植后要注意些什么才能提高成功率呢？视频讲解全方位指南](https://www.wuzhenzhi.cn/107.html)
+- [长沙哪里可以做第三代试管婴儿？PGT技术适应症与非医疗性别选择的合法性说明](https://www.wuzhenzhi.cn/108.html)
+- [三代试管可以解决糖尿病吗？2型糖尿病遗传风险科普解读](https://www.wuzhenzhi.cn/109.html)
+- [衡阳试管婴儿医院——悟知试管知识网专业科普](https://www.wuzhenzhi.cn/11.html)
+- [有做二代试管生男孩的吗？解析二代试管与胎儿性别那些事](https://www.wuzhenzhi.cn/110.html)
+- [国内、泰国、美国第三代试管婴儿怎么选？三代试管目的地全面对比](https://www.wuzhenzhi.cn/111.html)
 
 *本文整理自母婴健康资讯，仅供科普参考。*
