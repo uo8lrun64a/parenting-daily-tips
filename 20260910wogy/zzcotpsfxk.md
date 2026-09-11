@@ -199,12 +199,20 @@ INCINTA 遗传顾问 48 h 内出中文解读，常见句式：
 
 ## 推荐站点
 
-- [清宫后二次移植成功率高吗会怀孕吗？移植生化后二次成功率详解](https://www.wuzhenzhi.cn/100.html)
-- [南京供卵医院成功率多少？南京省人医试管婴儿成功率解读与影响因素科普](https://www.wuzhenzhi.cn/101.html)
-- [郴州可以做三代试管吗？最新消息与长沙三代试管婴儿黑市风险科普](https://www.wuzhenzhi.cn/102.html)
-- [江西供卵三代试管包成功是真的吗？南昌医院三代试管资质全解读](https://www.wuzhenzhi.cn/103.html)
-- [移植囊胚能吃苹果吗好吗？囊胚移植可以吃火龙果吗有影响吗](https://www.wuzhenzhi.cn/104.html)
-- [吉林省人民医院试管婴儿成功率高吗？长春吉大二院试管成功率解读](https://www.wuzhenzhi.cn/105.html)
-- [国内试管婴儿案例最新消息与进展：政策、技术与真实情况解读](https://www.wuzhenzhi.cn/106.html)
+- [['https://www.sjb493.cn/14565428950620.html', '供精试管代怀中介_代怀公司哪家诚信,试管囊胚冷冻多少费用？试管囊胚冷冻费用和解冻费用一样吗？']](https://www.sjb493.cn/14565428950620.html)
+- [['https://www.sasksjob.com/521632110189.html', '杭州试管助孕费用解析：19万是否足够？']](https://www.sasksjob.com/521632110189.html)
+- [['https://www.luruihang.com/2110.html', '宫腹腔镜后怀孕几率']](https://www.luruihang.com/2110.html)
+- [['https://www.xnnpbhdz.cn/16697289711007.html', '福建妇幼代生宝宝价钱大约多少钱，福建省妇幼代生宝宝价钱成功率高吗']](https://www.xnnpbhdz.cn/16697289711007.html)
+- [['https://www.3899234.com/20250927-52.html', '代孕供卵费用&怀孕初期几周做b超最好怀孕B超检查什么']](https://www.3899234.com/20250927-52.html)
+- [['https://www.hs52.cc/tesefuwu/68.html', 'tsh高需要中断促排卵针吗？tsh偏高能打疫苗吗？']](https://www.hs52.cc/tesefuwu/68.html)
+- [['https://www.sgdaiyun.com/215040380216.html', None]](https://www.sgdaiyun.com/215040380216.html)
+- [['https://www.gyzhixiao.cn/223.html', '能做借卵试管:移植前三天注意事项.试管移植的注意事项？(试管婴儿移植前三天注意这4点)']](https://www.gyzhixiao.cn/223.html)
+- [['https://www.hg00fj88.com/2251.html', '北京18家试管婴儿医院排名、成功率与费用是否医保']](https://www.hg00fj88.com/2251.html)
+- [['https://www.cndcxc.com/daiyunketang/20251021/17021.html', '试管三代供卵，试管婴儿宝宝移植到哪去']](https://www.cndcxc.com/daiyunketang/20251021/17021.html)
+- [['https://www.cd-hssf.com/228610766285.html', '排卵期出褐色血咋回事']](https://www.cd-hssf.com/228610766285.html)
+- [['https://www.mimi567.com/225.html', '南平三代试管可以选择婴儿性别吗？']](https://www.mimi567.com/225.html)
+- [['https://www.cxit.com.cn/daiyunbaobao/14203.html', '云南做试管婴儿要花多少钱,云南第三代试管婴儿医院做三代试管婴儿要多少钱']](https://www.cxit.com.cn/daiyunbaobao/14203.html)
+- [['https://www.dyqlsu.com/20250314-382.html', '代孕成功率能有多少,一侧卵巢囊肿会影响怀孕吗？一侧卵巢有囊肿会影响排卵']](https://www.dyqlsu.com/20250314-382.html)
+- [['https://www.eduency.com/223641608231.html', '代生成功率高:试管移植前宫腔强回声，宫腔有强回声可不可以移植？']](https://www.eduency.com/223641608231.html)
 
 *本文整理自母婴健康资讯，仅供科普参考。*
