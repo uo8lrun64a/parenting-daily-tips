@@ -34,13 +34,19 @@
 
 ## 推荐站点
 
-- [试管囊胚4AA比3AA成功率高吗？囊胚等级与移植成功率详解](https://www.wuzhenzhi.cn/99.html)
-- [试管婴儿技术_一代二代三代区别_PGT与ICSI原理-悟知试管知识网](https://www.wuzhenzhi.cn/jishu/)
-- [试管婴儿流程步骤详解_促排取卵移植全过程-悟知试管知识网](https://www.wuzhenzhi.cn/liucheng/)
-- [什么人需要做试管_试管适应症_输卵管梗阻与少弱精-悟知试管知识网](https://www.wuzhenzhi.cn/renqun/)
-- [试管婴儿常见问答_试管FAQ_试管费用成功率在线咨询-悟知试管知识网](https://www.wuzhenzhi.cn/wenda/)
-- [试管婴儿常见误区_试管辟谣_包成功骗局揭秘-悟知试管知识网](https://www.wuzhenzhi.cn/wuqu/)
-- [试管婴儿政策_试管医保报销_三胎与辅助生殖法规-悟知试管知识网](https://www.wuzhenzhi.cn/zhengce/)
-- [南京鼓楼医院供卵等多久——悟知试管知识网专业科普](https://www.wuzhenzhi.cn/10.html)
+- [['https://www.hs52.cc/sandaigongluandaihuai/478.html', '生殖机构代孕妈妈,新疆不孕不育医院排名在这？新疆医科大学不孕不育科？']](https://www.hs52.cc/sandaigongluandaihuai/478.html)
+- [['https://www.ppmaas.com/xuanxingbietaocan/442.html', '河北省第四医院代生宝宝费用成功率是多少？有哪些数据可以参考来评估代生宝']](https://www.ppmaas.com/xuanxingbietaocan/442.html)
+- [['https://www.jszgyh.com/207990770244.html', '试管婴儿移植前同房了，还能移植吗']](https://www.jszgyh.com/207990770244.html)
+- [['https://www.mimi567.com/359.html', '2026南宁试管婴儿多少钱（医院价格35572元）']](https://www.mimi567.com/359.html)
+- [['https://www.dyqlsu.com/20251014-2.html', '供卵代生网：云南九洲医院试管中心_怎么避免在试管婴儿中移植失败？']](https://www.dyqlsu.com/20251014-2.html)
+- [['https://www.zrbbavaq.cn/30923753454072.html', None]](https://www.zrbbavaq.cn/30923753454072.html)
+- [['https://www.hg00fj88.com/2276.html', '试管代生网-卵巢早衰没有窦卵泡还有救么？别担心，有四种解救办法总有一种适合你']](https://www.hg00fj88.com/2276.html)
+- [['https://www.monpun.com/1520607539571.html', '上海高龄女性二胎备孕：孕前检查与辅助生殖的必要性']](https://www.monpun.com/1520607539571.html)
+- [['https://www.cd-hssf.com/202991812518.html', '山东三代试管婴儿生育费用介绍！附医院名单推荐！']](https://www.cd-hssf.com/202991812518.html)
+- [['https://www.btwtjx.cn/wuhangongluanshiguanqun/20251014/6204.html', '卵子发育不好试管成功率，卵泡发育不好做试管婴儿成功率高吗']](https://www.btwtjx.cn/wuhangongluanshiguanqun/20251014/6204.html)
+- [['https://www.fmngst.com/1910581279334.html', '40岁合肥三代试管成功率(合肥三代试管大概多少钱)']](https://www.fmngst.com/1910581279334.html)
+- [['https://www.skiguo.cn/20250927-67.html', '吃榴莲有助于卵泡发育']](https://www.skiguo.cn/20250927-67.html)
+- [['https://www.cndcxc.com/daiyunjiage/17069.html', '试管婴儿要满足什么前提条件才可以选用冻胚移植？']](https://www.cndcxc.com/daiyunjiage/17069.html)
+- [['https://www.bjwdzxkj.cn/2649220470581.html', None]](https://www.bjwdzxkj.cn/2649220470581.html)
 
 *本文整理自母婴健康资讯，仅供科普参考。*
