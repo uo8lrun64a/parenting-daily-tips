@@ -68,14 +68,18 @@ PN胚胎分为0PN、1PN、2PN、3PN和4PN，4PN胚胎属于是不可用的，而
 
 ## 推荐站点
 
-- [移植后多久停环孢素最好？试管移植成功后停药时间全解析](https://www.wuzhenzhi.cn/67.html)
-- [试管移植后梦见生女儿、梦到活鱼是什么意思？科学解读移植后的梦](https://www.wuzhenzhi.cn/68.html)
-- [试管婴儿移植后可以吃黄豆酱吗？移植后能吃大酱吗有影响吗](https://www.wuzhenzhi.cn/69.html)
-- [中山三院及松山湖第三医院试管婴儿成功率高吗？一文读懂](https://www.wuzhenzhi.cn/70.html)
-- [上海第一妇保医院试管成功率解读：数据、影响因素与就诊指南](https://www.wuzhenzhi.cn/71.html)
-- [深圳武警医院试管成功率高吗？影响试管婴儿成功率的关键因素解析](https://www.wuzhenzhi.cn/72.html)
-- [试管移植后做梦生了男孩是啥意思？梦与着床成败的科学解读](https://www.wuzhenzhi.cn/73.html)
-- [移植内膜11.5c怎么样？移植内膜10.5B能移植吗？一文读懂内膜分型](https://www.wuzhenzhi.cn/74.html)
-- [泰国成功率试管婴儿机构怎么选？泰国第一批试管婴儿成功率全面解读](https://www.wuzhenzhi.cn/75.html)
+- [['https://www.gyzhixiao.cn/107.html', '月经异常别大意，宫腔镜手术治疗子宫憩室']](https://www.gyzhixiao.cn/107.html)
+- [['https://www.esc45.com/139.html', '备孕六个月没怀孕需要做哪些检查，孕前检查清单']](https://www.esc45.com/139.html)
+- [['https://www.jszgyh.com/400402010593.html', '代生孩子服务：南通做试管婴儿医院排名来了！']](https://www.jszgyh.com/400402010593.html)
+- [['https://www.monpun.com/1576418296012.html', '北京40岁高龄女性备孕检查：解锁生育能力关键指标与胚胎质量评估']](https://www.monpun.com/1576418296012.html)
+- [['https://www.dyokx.com/zhuyunxiangmu/471.html', '试管婴儿取卵麻醉影响吗']](https://www.dyokx.com/zhuyunxiangmu/471.html)
+- [['https://www.phetpalace.com/476.html', '青岛哪些街道有供卵试管中介？崂山区医疗地标周边机构盘点']](https://www.phetpalace.com/476.html)
+- [['https://www.cddyunw.com/515142402238.html', '杭州试管婴儿医院哪家口碑好？赴杭助孕如何选择医院？']](https://www.cddyunw.com/515142402238.html)
+- [['https://www.cecigou.cn/2020daiyunshengzi/20250928/15163.html', '剂量不对保胎白费！顶刊文献证实这或许才是阿司匹林最佳保胎剂量']](https://www.cecigou.cn/2020daiyunshengzi/20250928/15163.html)
+- [['https://www.sasksjob.com/407791362540.html', '试管移植后常见问题解析及应对策略']](https://www.sasksjob.com/407791362540.html)
+- [['https://www.xmxinyhwzhs.cn/33588674554454.html', '老公戒不掉烟，也可以备孕怀孕,国内借卵子中心，国内试管借卵']](https://www.xmxinyhwzhs.cn/33588674554454.html)
+- [['https://www.bjwdzxkj.cn/3826353050718.html', '太平洋孕育中心(PFC)代生条件是什么成功率高达75%？具体得看这3点']](https://www.bjwdzxkj.cn/3826353050718.html)
+- [['https://www.luruihang.com/2129.html', '试管三代囊胚检测有风险吗！试管费用！']](https://www.luruihang.com/2129.html)
+- [['https://www.cxit.com.cn/daiyunbaobao/14197.html', '株洲试管婴儿做一次多少钱,株洲做试管婴儿多少钱一次？株洲做试管婴儿去哪']](https://www.cxit.com.cn/daiyunbaobao/14197.html)
 
 *本文整理自母婴健康资讯，仅供科普参考。*
