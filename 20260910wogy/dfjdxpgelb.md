@@ -82,13 +82,19 @@
 
 ## 推荐站点
 
-- [第三代试管包生儿子有影响吗？解析PGT技术与性别选择真相](https://www.wuzhenzhi.cn/112.html)
-- [临沂能做三代试管吗？最新消息与申请条件全面解读](https://www.wuzhenzhi.cn/113.html)
-- [囊胚性别鉴定要多久出结果？PGT检测流程与时间周期全解析](https://www.wuzhenzhi.cn/114.html)
-- [三代试管龙凤胎好吗？PGT技术能实现龙凤胎吗一文说清](https://www.wuzhenzhi.cn/116.html)
-- [4BC囊胚好还是八细胞一级冻胚好？冻胚与囊胚移植对比解析](https://www.wuzhenzhi.cn/117.html)
-- [移植囊胚方案有哪些项目可以做？囊胚移植替代方案类型全解析](https://www.wuzhenzhi.cn/118.html)
-- [新疆佳音医院收费大全：试管婴儿费用明细与流程解读](https://www.wuzhenzhi.cn/119.html)
-- [北京哪个医院能做供卵试管——悟知试管知识网专业科普](https://www.wuzhenzhi.cn/12.html)
+- [['https://www.dyokx.com/daihuaibaoshengzi/199.html', '试管代生群-hcg血检判断是否怀孕的准确率能达到100%吗？']](https://www.dyokx.com/daihuaibaoshengzi/199.html)
+- [['https://www.hg00fj88.com/2099.html', '胚胎移植后会不会掉出来胚胎移植后什么情况会掉出来']](https://www.hg00fj88.com/2099.html)
+- [['https://www.bjwdzxkj.cn/3561612271707.html', None]](https://www.bjwdzxkj.cn/3561612271707.html)
+- [['https://www.sgdaiyun.com/129635035180.html', '供卵增卵机构:反复生化妊娠可以做试管婴儿？反复生化妊娠能做试管吗？']](https://www.sgdaiyun.com/129635035180.html)
+- [['https://www.mimi567.com/225.html', '南平三代试管可以选择婴儿性别吗？']](https://www.mimi567.com/225.html)
+- [['https://www.anyhdlyb.cn/2746017765654.html', '2026年在徐州做试管生宝宝费用总共要多少,代孕靠谱公司']](https://www.anyhdlyb.cn/2746017765654.html)
+- [['https://www.cmanrxrr.cn/1811436136526.html', '会憋尿非常重要,国内供卵包男孩价格']](https://www.cmanrxrr.cn/1811436136526.html)
+- [['https://www.chengyanghg.cn/333.html', '2026年郑州供卵试管婴儿费用及流程详解']](https://www.chengyanghg.cn/333.html)
+- [['https://www.xmxinyhwzhs.cn/11397167726132.html', '韶关代生网供卵成功率高的医院有哪些,韶关代生网供卵成功率高的医院有两家']](https://www.xmxinyhwzhs.cn/11397167726132.html)
+- [['https://www.ppmaas.com/xuanxingbietaocan/170.html', '怀孕早期吃什么保胎']](https://www.ppmaas.com/xuanxingbietaocan/170.html)
+- [['https://www.cecigou.cn/chuanchengguojidaiyun/20250928/14919.html', '试管反复失败怎么检查出来？试管婴儿反复失败']](https://www.cecigou.cn/chuanchengguojidaiyun/20250928/14919.html)
+- [['https://www.sdwmtgccl.cn/56295299358093.html', '三代试管助孕成功率深度解析：揭秘代怀流程与内膜9mm移植关键因素']](https://www.sdwmtgccl.cn/56295299358093.html)
+- [['https://www.ewdboe.cn/510135462328.html', '湖北第三代代生医院排名：助孕省钱攻略2026版']](https://www.ewdboe.cn/510135462328.html)
+- [['https://www.cndcxc.com/daiyunjiage/17069.html', '试管婴儿要满足什么前提条件才可以选用冻胚移植？']](https://www.cndcxc.com/daiyunjiage/17069.html)
 
 *本文整理自母婴健康资讯，仅供科普参考。*
