@@ -170,11 +170,18 @@ PGT-A 价格在美国本土差异巨大：3 500–7 000 美元/次。便宜往�
 
 ## 推荐站点
 
-- [移植后要注意些什么才能提高成功率呢？视频讲解全方位指南](https://www.wuzhenzhi.cn/107.html)
-- [长沙哪里可以做第三代试管婴儿？PGT技术适应症与非医疗性别选择的合法性说明](https://www.wuzhenzhi.cn/108.html)
-- [三代试管可以解决糖尿病吗？2型糖尿病遗传风险科普解读](https://www.wuzhenzhi.cn/109.html)
-- [衡阳试管婴儿医院——悟知试管知识网专业科普](https://www.wuzhenzhi.cn/11.html)
-- [有做二代试管生男孩的吗？解析二代试管与胎儿性别那些事](https://www.wuzhenzhi.cn/110.html)
-- [国内、泰国、美国第三代试管婴儿怎么选？三代试管目的地全面对比](https://www.wuzhenzhi.cn/111.html)
+- [['https://www.bjwdzxkj.cn/3561612271707.html', None]](https://www.bjwdzxkj.cn/3561612271707.html)
+- [['https://www.syldezdhkj.cn/31902275217452.html', '通辽私立医院第三代代生女孩有没有成功率多高']](https://www.syldezdhkj.cn/31902275217452.html)
+- [['https://www.sdwmtgccl.cn/55820239325557.html', '2026年在吉林省做试管生宝宝大概费用详细一览,附详细费用,试管代孕供卵子医院']](https://www.sdwmtgccl.cn/55820239325557.html)
+- [['https://www.gyzhixiao.cn/478.html', '供卵机构助孕：人流几次才会发宫腔粘连，手术炎症是宫腔粘连重要原因之一']](https://www.gyzhixiao.cn/478.html)
+- [['https://www.chengyanghg.cn/329.html', '寻找可靠代孕之路：从拒绝到坦然接受的心路历程']](https://www.chengyanghg.cn/329.html)
+- [['https://www.cxit.com.cn/daiyunbaobao/13923.html', '供卵试管包生:取2个卵泡成功怀孕案例多吗？']](https://www.cxit.com.cn/daiyunbaobao/13923.html)
+- [['https://www.cmanrxrr.cn/1538507328608.html', None]](https://www.cmanrxrr.cn/1538507328608.html)
+- [['https://www.sasksjob.com/126072703532.html', '北京大学国际医院供卵流程攻略：从检查到移植需要多久？']](https://www.sasksjob.com/126072703532.html)
+- [['https://www.dyqlsu.com/20250413-395.html', '48岁供卵生子案例：在昆明挑战生育极限，这位妈妈是怎么做到的？']](https://www.dyqlsu.com/20250413-395.html)
+- [['https://www.phetpalace.com/453.html', '精子活力低应该怎么办？怎么提升精子数量质量？']](https://www.phetpalace.com/453.html)
+- [['https://www.xnnpbhdz.cn/21480651650118.html', '先天幼稚子宫做试管供卵指南最新成功率评估,什么是幼稚子宫']](https://www.xnnpbhdz.cn/21480651650118.html)
+- [['https://www.hs52.cc/sandaigongluandaihuai/75.html', '着床不稳的征兆']](https://www.hs52.cc/sandaigongluandaihuai/75.html)
+- [['https://www.zrbbavaq.cn/30999727506446.html', None]](https://www.zrbbavaq.cn/30999727506446.html)
 
 *本文整理自母婴健康资讯，仅供科普参考。*
