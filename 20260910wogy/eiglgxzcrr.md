@@ -41,12 +41,19 @@
 
 ## 推荐站点
 
-- [普洱人民医院试管费用高吗？普洱市人民医院做试管多少钱啊](https://www.wuzhenzhi.cn/127.html)
-- [东莞石龙哪个医院可以做试管婴儿？东莞试管婴儿医院选择与成功率科普指南](https://www.wuzhenzhi.cn/128.html)
-- [贵州试管婴儿成功率最高的医院是哪家？贵州省试管婴儿成功率排名榜最新解读](https://www.wuzhenzhi.cn/129.html)
-- [上海供卵试管机构——悟知试管知识网专业科普](https://www.wuzhenzhi.cn/13.html)
-- [试管婴儿成功率对比图表分析：全国试管成功率排名榜最新数据解读](https://www.wuzhenzhi.cn/130.html)
-- [做试管能报销吗？试管婴儿医保报销与商业保险项目全解读](https://www.wuzhenzhi.cn/131.html)
-- [试管纳入医保老公能用吗？各地试管费用与医保报销详解](https://www.wuzhenzhi.cn/132.html)
+- [['https://www.cmanrxrr.cn/3679824761223.html', '兰州做代生的花费成功率很高的医院排名前十公布']](https://www.cmanrxrr.cn/3679824761223.html)
+- [['https://www.sasksjob.com/512424450072.html', '专业助孕机构详解及费用参考']](https://www.sasksjob.com/512424450072.html)
+- [['https://www.sgdaiyun.com/225685839102.html', '权威助孕医院:睾丸发育不良治疗费用（睾丸发育不良手术费用）']](https://www.sgdaiyun.com/225685839102.html)
+- [['https://www.xnnpbhdz.cn/25811658554487.html', '扬州第三代试管医院排行榜单揭晓，附排名前十榜单,供卵代怀机构名单']](https://www.xnnpbhdz.cn/25811658554487.html)
+- [['https://www.phetpalace.com/43.html', '在国内申请供卵的卵源是免费的吗？']](https://www.phetpalace.com/43.html)
+- [['https://www.sdwmtgccl.cn/28070032749994.html', '广州中山六院供卵试管要排队多久？申请条件与流程详解']](https://www.sdwmtgccl.cn/28070032749994.html)
+- [['https://www.sjb493.cn/12531467517263.html', '代怀方法有哪些_代生正规的机构,婚礼为什么忌讳大腹部，和新娘犯冲只是其一']](https://www.sjb493.cn/12531467517263.html)
+- [['https://www.cndcxc.com/daiyunjiage/17041.html', '试管囊胚培养成功率高！']](https://www.cndcxc.com/daiyunjiage/17041.html)
+- [['https://www.dygsdyw.com/223640122275.html', '试管供卵助:孕妇能不能吃扇贝']](https://www.dygsdyw.com/223640122275.html)
+- [['https://www.zrbbavaq.cn/12615027456847.html', '代生男孩包儿子促排卵泡长得不够均匀会怎么样']](https://www.zrbbavaq.cn/12615027456847.html)
+- [['https://www.dyokx.com/gaolingzhuyun/71.html', '一次就能怀上_浙江私人供卵试管,宁波医院做试管婴儿哪家好？宁波哪家医院可']](https://www.dyokx.com/gaolingzhuyun/71.html)
+- [['https://www.cxit.com.cn/daiyunmama/14219.html', '武汉代怀宝宝合法吗,2026武汉市试管代怀生子机构排名，附试管助孕机构名单！']](https://www.cxit.com.cn/daiyunmama/14219.html)
+- [['https://www.anyhdlyb.cn/2528104630377.html', None]](https://www.anyhdlyb.cn/2528104630377.html)
+- [['https://www.3899234.com/20250927-146.html', '生男孩子代怀&东莞试管婴儿医院排行榜你知道吗？']](https://www.3899234.com/20250927-146.html)
 
 *本文整理自母婴健康资讯，仅供科普参考。*
